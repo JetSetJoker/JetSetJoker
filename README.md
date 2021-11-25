@@ -4,7 +4,6 @@ I make games at my pace with passion, on a computer I build over a decade ago (y
 
 You can find them here:
 
-https://yeshan-kalpage.itch.io
 
 
 <!---
